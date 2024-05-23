@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 I'm Hardeesh!
 
 Junior Data Scientist/Analyst<br /><br />
 
